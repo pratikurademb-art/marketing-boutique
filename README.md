@@ -110,5 +110,3 @@ Interested in a pilot? Let's talk.
 
 
 
-📩 \[Reach out via LinkedIn](https://www.linkedin.com/company/marketing-boutique)
-
